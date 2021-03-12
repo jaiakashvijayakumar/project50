@@ -1,1 +1,2 @@
-In this Website may learn easy origami and lesarn some interesting facts on some animal
+In this Website you will learn about easy origami and learn some interesting facts on some animal
+ 
